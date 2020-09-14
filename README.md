@@ -1,4 +1,4 @@
-Ms Low's Storyyyy
+(MS LOW'S STORYYY)
 aishhh aiyoo no ark no mark u understand or not?this geometry assignment very easy to get mark u know?aishh aiyo sit up STRAIGHT HOR if not ur back 歪歪 u know.
 Boys later how to expect girls to like u?ur handwriting HOR!
 Aiyo why the boys handwriting liddat 1?very 丑lehh.how to expect girls to like u?u expect girl to like u when ur handwriting liddat 2 meh?
